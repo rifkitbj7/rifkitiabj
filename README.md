@@ -1,0 +1,2 @@
+# rifkitiabj
+belajar segala hal
